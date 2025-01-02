@@ -1,7 +1,9 @@
 ## Hello, Boris Martinović here. 👋
 
-Third year software engineering student at the School of Electrical Engineering at the
-University of Belgrade. 
 
-Seeking to build new and expand existing knowledge, gain experience and meet people with similar interests along the way.
+Software engineer interested in designing and developing complex systems and working with professionals with similar interests. Hard-working and easy going.
 
+
+LinkedIn: https://www.linkedin.com/in/boris-martinovic-15b156256/
+
+Email: martinovicboris01@gmail.com
